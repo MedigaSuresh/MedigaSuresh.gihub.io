@@ -1,1 +1,1 @@
-# MedigaSuresh.gihub.io
+# medigasuresh.gihub.io
